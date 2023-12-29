@@ -1,1 +1,1 @@
-# Yangi-Yil trtrtrggggeg
+# Yangi-Yil
